@@ -1,2 +1,1 @@
-# Finote-Selam-Industry-And-Investment-Office-
-Investment For Development!
+welcome to finote selam industry and Investment Office 
